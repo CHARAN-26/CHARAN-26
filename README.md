@@ -1,4 +1,4 @@
-[![MasterHead](https://github.com/CHARAN-26/CHARAN-SAI-ATMAKURI/blob/841a460fba95258e0795c93acb8e476b7201bf99/CHARAN%20SAI%20ATMAKURI.jpg)](https://github.com/CHARAN-26)
+[![MasterHead](https://github.com/CHARAN-26/CHARAN-26/blob/d3d6a4b757cb7751711d9c00428897de04467b56/CHARAN%20SAI%20ATMAKURI.jpg)](https://github.com/CHARAN-26)
 <h1 align="center">𝐻𝑒𝑙𝑙𝑜😊𝑡𝑜 𝑡ℎ𝑒 𝑝𝑒𝑟𝑠𝑜𝑛 𝑟𝑒𝑎𝑑𝑖𝑛𝑔 𝑡ℎ𝑖𝑠.....</h1>
 <h3 align="center">"𝐓𝐇𝐄 𝐇𝐀𝐑𝐃𝐄𝐒𝐓 𝐓𝐈𝐌𝐄 𝐀𝐋𝐖𝐀𝐘𝐒 𝐃𝐄𝐒𝐄𝐑𝐕𝐄𝐒 𝐓𝐇𝐄 𝐆𝐑𝐄𝐀𝐓𝐄𝐒𝐓 𝐖𝐈𝐍."</h3>
 
